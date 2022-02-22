@@ -1,5 +1,5 @@
-# Dead-Lock
+# Dead
 
 Made by crehdit 
 
-Update soon
+Dead Hub Soon (Boombox Games and more)
